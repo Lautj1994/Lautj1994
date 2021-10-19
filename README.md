@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lautj1994
+- 👀 I’m interested in  la programacion
+- 🌱 I’m currently learnin  programacion
+- 💞️ I’m looking to collaborate on  algun proyecto zombie  plague  +level + reset + gran reset
+- 📫 How to reach me  lautaroirusta90@gmail.com ... ---> Discord:  Unnamed#6844
